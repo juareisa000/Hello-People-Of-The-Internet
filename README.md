@@ -1,2 +1,2 @@
 # Hello-People-Of-The-Internet
-Hello people of the internet this is my repository welcome i hope you enjoy
+Hello People Of the Internet This Is My Repository And I Hope You Enjoy It As Much As I Do
