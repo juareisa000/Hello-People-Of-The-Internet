@@ -80,7 +80,7 @@ As you are able to work at your own pace, this can sometimes cause a general slo
 
 ![alt text](cheating.jpg "CC 2.0: Generic | Cropped, Grey Scale, Selective Blur  |  Craig Sunter")
 
-#### Cheating & Academic Dishonesty
+#### Cheating & Academic Dishonesty 
 
 ##### Copyright & Intellectual Property:
 
